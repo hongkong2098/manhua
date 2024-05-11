@@ -12,7 +12,7 @@
 
 🔥 👉 【漫画地址五】 ：https://www.seyoumanhua.com
 
-🌐 👉 【海外地址】 ：https://www.18jin.top
+🌐 👉 【海外地址】 ：https://www.hmh9.com
 
 ✅ 【邮箱联系方式】 ：hongkong2098@gmail.com
 
