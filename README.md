@@ -14,6 +14,8 @@
 
 🔥 👉 【小说地址一】 ：https://www.66story.com
 
+🔥 👉 【小说地址一】 ：https://www.seyouxiaoshuo.com
+
 🌐 👉 【海外地址】 ：https://www.hmh9.com
 
 ✅ 【邮箱联系方式】 ：hongkong2098@gmail.com
