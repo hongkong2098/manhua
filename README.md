@@ -6,7 +6,7 @@
 
 🔥 👉 【漫画地址二】 ：https://www.18jin.org
 
-🔥 👉 【漫画地址三】 ：https://88manhua.buzz
+🔥 👉 【漫画地址三】 ：https://88manhua.cc
 
 🔥 👉 【漫画地址四】 ：https://66manhua.cc
 
